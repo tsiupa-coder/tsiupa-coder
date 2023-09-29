@@ -1,3 +1,1 @@
 ### Hi there 👋
-
-## 📊 GitHub Stats
